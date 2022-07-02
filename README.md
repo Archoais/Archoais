@@ -5,4 +5,4 @@
 - Future Martian       👩‍🚀🔴
 
 - 📫 How to reach me: b-franklin@outlook.com https://www.linkedin.com/in/benjamin-franklin/
-- ⚡ Fun fact: Did you know lockdown is just training for living on Mars?
+- ⚡ Fun fact: Did you know lockdown was just training for living on Mars?
